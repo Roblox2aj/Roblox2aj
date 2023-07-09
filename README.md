@@ -1,6 +1,6 @@
 - Hi, I’m @AFFIFSIJOSFISFAIOSFSFA
 - How to reach me on discord NOOOOOO
-
+HOW DO I DELETE THESE THINGS
 <!---
 DGDFDGDFGFDGDFGD
 --->
